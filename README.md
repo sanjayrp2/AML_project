@@ -66,7 +66,7 @@ This project is a testament to the spirit of collaboration and innovation. We ex
   - **KAUSHIK B** - [Email for details](mailto:kaushikb.21aid@kongu.edu)
   - **SUJITH R B** - [Email for details](mailto:sujithrb.21aid@kongu.edu)
   - **SIVAKARTHIK A T** - [Email for details](mailto:sivakarthikat.21aid@kongu.edu)
-  - **SANDEEP K** - [Email for details](mailto:sandeepk.21aid@kongu.edu)
+  - **SANJAY R** - [Email for details](mailto:sanjayr.21aid@kongu.edu)
     
     - **Mentor :Mrs.SENTHILVADIVU** - [Email for details](mailto:senthilvadivu@kongu.edu)
     
